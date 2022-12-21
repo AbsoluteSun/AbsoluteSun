@@ -1,1 +1,1 @@
-AbsoluteSun here, no real to be. Just here!
+AbsoluteSun here, no real reason to be. Just here!
